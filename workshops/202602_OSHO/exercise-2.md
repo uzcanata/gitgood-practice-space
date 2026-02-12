@@ -10,12 +10,12 @@
 
 ## Participant PRs
 
-1. Cass GvP, here is my [LinkedIn](https://www.linkedin.com/in/cassandra-gould-van-praag-b8292a16/)
+1. 
 2. 
 3. Alice Huang: https://www.cercmetabolismbrain.ca/
 4. 
 5. 
-6. 
+6. zhengze
 7. Navid, 12/Feb/2026, [My LinkedIn](https://www.linkedin.com/in/navid-ghassemi-687384b5/)
 8. 
 9. 
