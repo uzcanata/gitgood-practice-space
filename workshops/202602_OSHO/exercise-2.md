@@ -16,7 +16,7 @@
 4. 
 5. 
 6. 
-7. 
+7. Navid, 12/Feb/2026, [My LinkedIn](https://www.linkedin.com/in/navid-ghassemi-687384b5/)
 8. 
 9. 
 10. 
